@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @adenugaXXX
-- 👀 I’m interested in ...Anything Cryptocurrenc/Investment
+- 👀 I’m interested in ...Anything Cryptocurrency/Investment
 - 🌱 I’m currently learning ... NFT
 - 💞️ I’m looking to collaborate on ...Social
 - 📫 How to reach me ... samuel.o.adenugaa@gmail.com/+2348094691034
